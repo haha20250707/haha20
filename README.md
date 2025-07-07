@@ -11,4 +11,4 @@
 
 日本AV免费影片平台为你带来了丰富的资源选择。网站通过分类帮助你快速找到想看的影片，包括演员、类型、更新日期等。每部影片下方都提供了详细的描述和高清播放选项，确保你获得流畅、清晰的观看体验。平台定期更新内容，保证你能够找到最新的影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250707/haha20 ）</span>
